@@ -51,5 +51,3 @@
 
 
 
-###MY GITHUB CONTRIBUTIONS
-![Snake animation] (https://github.com/PhoniciaAnne/PhoniciaAnne/blob/main/.github/workflows/blank.yml)
