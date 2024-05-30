@@ -2,7 +2,7 @@
 <h3 align="center">Aspiring Software Engineer | Full Stack Developer | Entrepreuneur | Passionate about AI and Web Technologies| Research Intern At NIT Warangal</h3>
 
 <img align = "right" alt ="coding" width = "400" src="https://user-images.githubusercontent.com/59734313/157189039-c09b3e38-9f42-42c0-ab54-14f1574190a7.gif">
-
+- 📫 How to reach me **phoniciaanne@gmail.com**
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=phoniciaanne&label=Profile%20views&color=0e75b6&style=flat" alt="phoniciaanne" /> </p>
 
