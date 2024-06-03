@@ -15,7 +15,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1MF7In24FMpTHPUVt69C-4xWufXCN0YNZ/view?usp=drive_link](https://drive.google.com/file/d/1MF7In24FMpTHPUVt69C-4xWufXCN0YNZ/view?usp=drive_link)
 
-- ⚡ About Me **I m not picky!I just know what I want....**
+- ⚡ Fun Fact **Learning has no Limit**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
