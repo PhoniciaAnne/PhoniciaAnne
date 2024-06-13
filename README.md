@@ -13,9 +13,9 @@
 
 - 📫 How to reach me **phoniciaanne@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1MF7In24FMpTHPUVt69C-4xWufXCN0YNZ/view?usp=drive_link](https://drive.google.com/file/d/1MF7In24FMpTHPUVt69C-4xWufXCN0YNZ/view?usp=drive_link)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1v0x6WdUYcMLknAS4imhgaetdl1lRShBM/view?usp=sharing)
 
-- ⚡ Fun Fact **Learning has no Limit**
+- ⚡ My believe **Consistency is the key**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
