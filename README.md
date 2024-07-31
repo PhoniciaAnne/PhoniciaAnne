@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **phoniciaanne@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/12bcvl30M8kbee8S4XfdbHQ7cKYq_P9gG/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/19Fdx9MnccvLtz8qEqNK7co5cgd09Hc8y/view?usp=sharing)
 
 - ⚡ My believe **Consistency is the key**
 
