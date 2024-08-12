@@ -7,7 +7,7 @@
 
 
 
-- 🔭 I’m currently working at **Kairos Technologies**
+- 🔭 I’m a former intern at **Kairos Technologies**
 
 - 🌱 I’m currently learning **NLP**
 
